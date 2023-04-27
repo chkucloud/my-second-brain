@@ -5,10 +5,10 @@
 
 # Freizeit
 
-## Sport
-
 > *You can't do a good job, if your job is all you do!*
 > \- Irgendjemand
+
+## Sport
 
 In meiner Freizeit beschäftige ich mich sehr gerne mit Sport. Ich spiele selbst *seit fast 15 Jahren Unihockey* und war ebenfalls über *7 Jahre Juniorentrainer diverser Stufen*.
 
